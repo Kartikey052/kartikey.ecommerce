@@ -2,7 +2,7 @@
 *For any queries contact to* https://www.instagram.com/kartik__sharma52/
 
 
-*Demo website link* https://kartikey052.github.io/kartikey.ecommerce/\
+*Demo website link* https://kartikey052.github.io/kartikey.ecommerce/
 
 
 
